@@ -1,1 +1,4 @@
-# CS2205.CH1501
+- Tạ Nguyễn Thanh Nhân, K.15, Ngành CNTT
+- Sở thích: Tìm hiểu nghiên cứu công nghệ mới, thương mại điện tử, Blockchain,...
+- Định hướng nghề nghiệp : mong muốn học hỏi tìm hiểu thêm nhiều kiến thức bổ ích nhằm áp dụng vào công việc hiện tại.
+- Kết nối : địa chỉ facebook  : https://www.facebook.com/nhantnt93
